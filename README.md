@@ -1,4 +1,5 @@
 # Best CAT 2026 Course for High Percentile | Classes & Mocks
+<img src="https://media.iquanta.in/ui_images/cat-2026/cat-2026-course.webp" alt="CAT 2026 Course">
 
 Preparing for **CAT 2026** demands consistency, conceptual clarity, and the right guidance—especially for aspirants balancing preparation with college or a full-time job. A **CAT 2026 online course** offers an effective solution by combining flexible learning, structured study plans, mock-based practice, and personalized mentorship on a single platform.
 
@@ -8,7 +9,7 @@ With competition increasing every year, online preparation is no longer a second
 
 ## Why Choose an Online CAT 2026 Course?
 
-An online CAT 2026 course is designed to deliver flexibility without compromising preparation quality. It allows aspirants to study at their own pace while staying aligned with a clear, exam-focused roadmap.
+An online **<a href="https://www.iquanta.in/cat-2026">CAT 2026 Course</a>** is designed to deliver flexibility without compromising preparation quality. It allows aspirants to study at their own pace while staying aligned with a clear, exam-focused roadmap.
 
 ### Key Benefits
 - Learn from any location without relocation  
